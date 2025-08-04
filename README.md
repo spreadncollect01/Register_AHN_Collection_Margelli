@@ -26,14 +26,15 @@ The AKnight Games are not just games — they are **transformational experiences
 
 ## 🔗 Related Resources
 
-Explore more on our Genially spaces:
-- [AKnight Games Portal](https://genial.ly/AKnightGames)
-- [Coaching Compliance Conduct](https://genial.ly/CoachingComplianceConduct)
-- [AHNninja Club Overview](https://genial.ly/AHNninjaClub)
+Blogs who describe the Vision and Mission in more details of Margelli
+- https://rainbowlandnet.wordpress.com
+- https://zufriedenheitsmanagement.wordpress.com
+- https://micromacro.beepworld.de
+- -https://mariagellissen.wordpress.com
 
 ## 🤝 Join the Movement
 
-Whether you're a coach, educator, developer, or change-maker — you're invited to contribute, collaborate, and expand the reach of ethical coaching and agile empowerment.
+Whether you're a not having one degree, are interested, are coach, educator, developer, or change-maker — you're invited to contribute, collaborate, and expand the reach of ethical coaching and agile empowerment.
 
 ---
 
