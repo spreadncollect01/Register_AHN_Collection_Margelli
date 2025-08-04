@@ -29,7 +29,7 @@ The AKnight Games are not just games — they are **transformational experiences
 Blogs who describe the Vision and Mission in more details of Margelli
 - https://rainbowlandnet.wordpress.com
 - https://zufriedenheitsmanagement.wordpress.com
-- https://micromacro.beepworld.de
+- https://micro-macro.beepworld.de
 - -https://mariagellissen.wordpress.com
 
 ## 🤝 Join the Movement
